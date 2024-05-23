@@ -1,1 +1,1 @@
-Dogs have an extraordinary sense of smell, with some breeds, like Bloodhounds, having up to 300 million scent receptors, compared to humans' 5 million.
+Dogs use body language, vocalizations, and scent cues to communicate with each other and with humans, conveying emotions like fear, happiness, and submission.
