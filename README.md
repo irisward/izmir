@@ -1,1 +1,1 @@
-Dogs use body language, vocalizations, and scent cues to communicate with each other and with humans, conveying emotions like fear, happiness, and submission.
+Breeds like German Shepherds, Labrador Retrievers, and Golden Retrievers are commonly used as police and military dogs due to their intelligence, loyalty, and trainability.
