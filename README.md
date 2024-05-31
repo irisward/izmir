@@ -1,1 +1,1 @@
-There are over 340 recognized dog breeds worldwide, each with its own unique characteristics and traits.
+Dolphins are known for their playful behavior and have been observed riding waves and playing with objects like seaweed and bubbles.
