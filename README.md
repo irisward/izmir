@@ -1,1 +1,1 @@
-The proboscis monkey, native to Borneo, has an unusually large nose that serves as a resonating chamber for its loud calls and as a display during courtship rituals.
+The male seahorse is the only animal in the world that undergoes pregnancy and gives birth to live young, with the female depositing her eggs in a pouch on the male's abdomen.
