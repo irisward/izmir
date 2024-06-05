@@ -1,1 +1,1 @@
-The male seahorse is the only animal in the world that undergoes pregnancy and gives birth to live young, with the female depositing her eggs in a pouch on the male's abdomen.
+The arctic tern migrates from the Arctic to the Antarctic and back each year, covering a distance of over 44,000 miles, the longest migration of any animal.
