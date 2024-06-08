@@ -1,1 +1,1 @@
-The proboscis monkey, native to Borneo, has an unusually large nose that serves as a resonating chamber for its loud calls and as a display during courtship rituals.
+The katydid, a type of insect, resembles a leaf with its flattened body and veined wings, making it nearly indistinguishable from a real leaf when at rest.
