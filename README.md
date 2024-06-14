@@ -1,1 +1,1 @@
-Breeds like German Shepherds, Labrador Retrievers, and Golden Retrievers are commonly used as police and military dogs due to their intelligence, loyalty, and trainability.
+There are over 8.7 million known species of animals on Earth, ranging from tiny insects to massive whales.
