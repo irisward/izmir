@@ -1,1 +1,1 @@
-There are over 8.7 million known species of animals on Earth, ranging from tiny insects to massive whales.
+Some breeds, like Siamese and Oriental cats, are known for their vocalizations and will "talk" to their owners with meows, chirps, and trills.
