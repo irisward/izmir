@@ -1,1 +1,1 @@
-Dolphins are known for their playful behavior and have been observed riding waves and playing with objects like seaweed and bubbles.
+A dog's sense of smell is so acute that they can detect certain diseases, like cancer and diabetes, by sniffing a person's breath or urine.
