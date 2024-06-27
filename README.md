@@ -1,1 +1,1 @@
-The cheetah holds the title of the fastest land animal, reaching speeds of up to 60 to 70 miles per hour in short bursts.
+The Basenji, known as the "barkless dog," doesn't bark like other dogs but instead produces a unique yodel-like sound.
