@@ -1,1 +1,1 @@
-Dogs have been trained for various working roles throughout history, including herding, hunting, guarding, and assisting people with disabilities as service dogs.
+The orchid mantis mimics the appearance of orchid flowers, allowing it to blend seamlessly into its surroundings and ambush unsuspecting prey.
