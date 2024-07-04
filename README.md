@@ -1,1 +1,1 @@
-The orchid mantis mimics the appearance of orchid flowers, allowing it to blend seamlessly into its surroundings and ambush unsuspecting prey.
+Some breeds, like Siamese and Oriental cats, are known for their vocalizations and will "talk" to their owners with meows, chirps, and trills.
