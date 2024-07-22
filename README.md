@@ -1,1 +1,1 @@
-Dogs are pack animals by nature and thrive on social interaction, which is why they may experience separation anxiety when left alone for extended periods.
+The male deep-sea anglerfish attaches itself to the much larger female using specialized teeth, eventually fusing with her bloodstream and becoming a permanent parasite.
