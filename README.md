@@ -1,1 +1,1 @@
-The oldest recorded dog, an Australian cattle dog named Bluey, lived to be 29 years and 5 months old.
+Dogs are pack animals by nature and thrive on social interaction, which is why they may experience separation anxiety when left alone for extended periods.
