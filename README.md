@@ -1,1 +1,1 @@
-Some breeds, like Siamese and Oriental cats, are known for their vocalizations and will "talk" to their owners with meows, chirps, and trills.
+The average lifespan of a cat is around 12 to 15 years, although indoor cats tend to live longer than outdoor cats due to reduced exposure to risks like traffic and predators.
