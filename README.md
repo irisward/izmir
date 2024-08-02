@@ -1,1 +1,1 @@
-The average lifespan of a cat is around 12 to 15 years, although indoor cats tend to live longer than outdoor cats due to reduced exposure to risks like traffic and predators.
+The cheetah holds the title of the fastest land animal, reaching speeds of up to 60 to 70 miles per hour in short bursts.
